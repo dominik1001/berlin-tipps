@@ -10,6 +10,12 @@ The best tour I've ever done was in Tempelhof.
 
 https://www.thf-berlin.de/fuehrungen/
 
+# fun
+
+My most favorite Escape Game of all times:
+
+https://the-room-berlin.com/go-west/
+
 # restaurants
 
 Prenzlauer Berg:
